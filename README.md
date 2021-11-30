@@ -1,0 +1,1 @@
+# stickers-shop.github.io
